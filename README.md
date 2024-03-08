@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @takuryto2
+- 🌱 I’m currently learning video game development
+- 💞️ I’m looking to collaborate on dumb projects
+- 📫 How to reach me takuryo84@gmail.com
+- 😄 Pronouns: He/il
+- ⚡ Fun fact: ma fokin exhaust fell of. however, UPGRADE
